@@ -1,0 +1,2 @@
+# hoja_de_ruta_informativa_g_7_cripto_Abril_12_2026.html
+hoja_de_ruta_informativa_g_7_cripto_Abril_12_2026.html
